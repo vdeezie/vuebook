@@ -1,0 +1,5 @@
+<script>start("c:\\Users\\Mathew\\Documents\\GitHub\\vuebook\\");</script>
+<script>onHasParentDirectory();</script>
+<script>addRow(".git",".git",1,0,"0 B",1591074563,"02/06/2020, 06:09:23");</script>
+<script>addRow("docs","docs",1,0,"0 B",1591074495,"02/06/2020, 06:08:15");</script>
+<script>addRow("package.json","package.json",0,65,"65 B",1591074495,"02/06/2020, 06:08:15");</script>
