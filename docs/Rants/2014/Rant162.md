@@ -1,0 +1,23 @@
+# Rant162
+
+
+
+August 9, 2014
+
+The Nigerian Facebook inbox-er:
+
+"Hello. Xup?"
+... 
+“I so much like your TVC show. It is very enlightening. Big ups.”
+…
+“What beautiful write up you have on sabinews. Too good. Well done.”
+…
+“I love that picture you just posted on your wall. You are so beautiful.”
+…
+“Don’t you respond to your messages?”
+…
+“Are you too big to reply to someone?”
+…
+“This is why you are single because you think you are too much. Who do you think you are? Common to reply you are feeling big. No man like woman that has pride.”
+…
+*Shhhhh…I am still quiet; I am convinced there’s still plenty of bile cooking in the belly of this beer guzzling oaf. Why ruin his moment.*
